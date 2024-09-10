@@ -1,0 +1,1 @@
+Yo fam, don’t just snag this repo and dip! It’s for learning and leveling up, not for clout-chasing with copied code. And fr, no one’s tryna see a bunch of -42s at intra profile, Keep it real and actually learn!
